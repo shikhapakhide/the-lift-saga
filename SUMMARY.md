@@ -2,6 +2,6 @@
 
 * [Introduction](README.md)
 * [Table of Contents](chapter1.md)
-   * Those Eyes
+   * [Those Eyes](those_eyes.md)
    * Who are you
 
