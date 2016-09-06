@@ -2,10 +2,15 @@
 
 
 "Should I speak to my family about this person "
+
 "Should I tell this to Riddhima and I solve it without involving my parents."
+
 "Should I tell the security person and inquire about him? Then his entry at least in the IT park will be banned."
+
 "Should I approach the police but they will ask me what he has done? He is just staring.Ok, it's not just staring, it's disturbing me a lot, and I am uncomfortable and not able to carry my routine."
+
 "Should I tell Anmol? But sitting in Mumbai what can he do?"
+
 "Should I tell all my guy friends? They will go and bash him up and what if he comes again to take revenge and ... "
 
 Krittika screamed and said, "Shut up." She was sitting on the bed, sweating and staring into the darkness of her room.She has not shared this incident with anybody.Her parents, her best friend, her boyfriend, nobody is aware of her present state of mind.Nothing could pull Krittika, and here she is contemplating if she should share about the stalker with her closed ones.How could she be so scared? She is a confident, successful person who never shied away from speaking her mind.And look what a pair of eyes have done to her.She picked up the phone and dialled Riddhima's number.When it was about to ring, she disconnected.She decided that she will speak to her in the morning.A midnight call will scare her and plus if she doesn't answer the call, then Krittika will become more impatient.She kept her cell phone and tried to sleep.She did not want that morning should come.
