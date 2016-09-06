@@ -25,7 +25,7 @@ To ease up they situation , she said " *By the way , if you have not noticed , y
 The trousers were much better and Krittika said thanks to Riddhima."I will speak to you later Rids"and Krittika went to her desk.The eyes were mocking at her from the screen as well.
 
 
-# *"I am a winner today as well.Enjoy your day and I will see you tomorrow"*
+### # *"I am a winner today as well.Enjoy your day and I will see you tomorrow"*
 
 
 
