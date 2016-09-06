@@ -7,4 +7,5 @@
    * The Pendulum
    * Chasm
    * Runaway Girl
+   * The Knight in Shining Armour
 
