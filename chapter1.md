@@ -1,6 +1,6 @@
 
 
-# List of Chapters
+# Contents
 
 **1.Those Eyes**
 
