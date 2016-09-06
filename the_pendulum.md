@@ -17,3 +17,14 @@ She reached the bus stand and had a wishful thinking that the stalker should not
 Riddhima was all excited and nervous at the same time for the review.She was giving the final touches to the presentation.Krittika had prepared a very lame one which was starkly opposite from the previous ones.Krittika was not able to find a time to speak to her.Now the plan was to open the can of worms after office.
 
 They both reached the conference room together.There was no order in which who will present and everybody was hoping in their heart that their turn should come last.It was pin drop silence in the board room.The boss came and took the seat and said " Krittika, let's open the floor to you.Go ahead; we are waiting to see amazing graphs from your side." She trodded silently towards the projector and stood in front of all.All she could see was clones of the stalker occupying every single chair in the room.She uttered good morning and fainted.
+
+When she opened her eyes, Riddhima and female colleagues from HR team were in the medical room.A doctor was checking her pulse.
+"Welcome, Krittika.Are you skipping meals? Your haemoglobin levels have dropped to dangerous levels.You better eat and rest, else I will be admitting  you to a hospital."
+
+The doctor turned to Riddhima and said," Make sure that she is at home for a couple of days and eating properly" She nodded.
+
+Admin team arranged for a vehicle to drop her to the residence.Krittika's boss cancelled the review meeting and allowed Riddhima to take a day off and be with Krittika.They both were alone in the cab, and Riddhima wanted to punch her hard.
+
+"You better vomit what is eating your head or else I will knock you off.I do not  want to keep guessing what is bothering you so better  tell me the truth."
+
+***The pendulum stopped, and the vibrations went off.Riddhima had just one wish " To kill the stalker "***
