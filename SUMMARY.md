@@ -4,8 +4,8 @@
 * [Table of Contents](chapter1.md)
    * [Those Eyes](those_eyes.md)
    * [Who are you](who_are_you.md)
-   * [Chasm](chasm.md)
    * [The Pendulum](the_pendulum.md)
+   * [Chasm](chasm.md)
    * Runaway Girl
    * The Knight in Shining Armour
    * The Retreat
