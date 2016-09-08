@@ -26,7 +26,7 @@ They both reached the conference room together.There was no order in which who w
 When she opened her eyes, Riddhima and female colleagues from HR team were in the medical room.A doctor was checking her pulse.
 "Welcome, Krittika.Are you skipping meals? Your haemoglobin levels have dropped to dangerous levels.You better eat and rest, else I will be admitting  you to a hospital."
 
-The doctor turned to Riddhima and said," Make sure that she is at home for a couple of days and eating properly" She nodded.
+The doctor turned to Riddhima and said," Make sure that she is eating properly" She nodded.
 
 Admin team arranged for a vehicle to drop her to the residence.Krittika's boss cancelled the review meeting and allowed Riddhima to take a day off and be with Krittika.They both were alone in the cab, and Riddhima wanted to punch her hard.
 
