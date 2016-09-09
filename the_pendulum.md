@@ -9,7 +9,7 @@
 
 "Should I approach the police but they will ask me what he has done? He is just staring.Ok, it's not just staring, it's disturbing me a lot, and I am uncomfortable and not able to carry my routine."
 
-"Should I tell Anmol? But sitting in Mumbai what can he do?"
+"Should I tell Vikrant? But sitting in Bangalore what can he do?"
 
 "Should I tell all my guy friends? They will go and bash him up and what if he comes again to take revenge and ... "
 
