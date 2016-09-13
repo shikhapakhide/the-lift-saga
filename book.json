@@ -1,8 +1,11 @@
 {
-    "plugins": ["disqus"],
+    "plugins": ["disqus", "ga"],
     "pluginsConfig": {
         "disqus": {
-            "shortName": "shikhashikz"
+            "shortName": "shikhasite"
+        },
+        "ga": {
+            "token": "UA-84084860-1"
         }
     }
 }
