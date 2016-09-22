@@ -10,4 +10,4 @@ Inside the tower, it was a restricted area and only people who work there are al
 Vikrant and his friend needed coffee after this cat and mouse chase.They went to a nearby cafe and ordered strong coffee with sandwiches.He asked for a pen and paper.
 "Apparently it seems that the stalker is not following Krittika and his point of interest is some house behind the bus stop.Coincidently the lady also works in the same tower as of Krittika's.So now we need to make sure that our finding is correct."
 Next step: Vikrant will contact his detective friend who will don the character of a policeman.They will take the man to a secluded area and make him reveal his real motive.
-The homework is completed, and it will be show time tomorrow.
+The homework completed, and it will be show time tomorrow.
