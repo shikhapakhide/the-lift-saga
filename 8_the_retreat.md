@@ -23,7 +23,7 @@ Vikrant took a turn, and the car was slowly moving towards the bus stop where th
 Stalker did not pay any heed to Krittika's gesture and was looking at the opposite bus stop.His reaction confused all three of them. Krittika increased the volume of her voice and again repeated " Vikrant, this is the stalker" No reaction again. The stalker's gaze was fixed. Vikrant could not park the car on this busy road and had to speed off.
 
 "Where was he looking Riddhima. Do you think he is blind? He did not react and was not staring at me."
-Vikrant's mind was busy in processing the information. Either this guy was just avoiding them because a male person was present with the girls or his target was somebody else. He had to get to the root of this issue else Krittika will be living in this perpetual fear. He dropped the girls to the office and told them to take a backseat for few days.The agreed arrangement was Vikrant would stay at his friend's place which was near to Krittika's house and keep a watch on this man. He had taken few weeks off from his work to finish the pending tasks in Delhi.
+Vikrant's mind was busy in processing the information. Either this guy was just avoiding them because a male person was present with the girls or his target was somebody else. He had to get to the root of this issue else Krittika will be living in this perpetual fear. He dropped the girls to the office and told them to take a backseat for few days. The agreed arrangement was Vikrant would stay at his friend's place which was near to Krittika's house and keep a watch on this man. He had taken few weeks off from his work to finish the pending tasks in Delhi.
 
 Before Krittika marched off, he pulled her back gently and wished her happy birthday again.
 
