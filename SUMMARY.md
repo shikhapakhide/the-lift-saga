@@ -10,6 +10,6 @@
 * [The Knight in Shining Armour](7_the_knight_in_shining_armour.md)
 * [The Retreat](8_the_retreat.md)
 * [Drawing Board](9_drawing_board.md)
-* [10_It's War](10_its_war.md)
+* [It's War](10_its_war.md)
 * [Back to Life](back_to_life.md)
 
