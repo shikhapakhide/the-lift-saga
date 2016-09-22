@@ -1,7 +1,7 @@
 # Summary
 
 * [Foreword](README.md)
-* [Preface](preface.md)
+* [Preface](1_preface.md)
 * [Those Eyes](1_those_eyes.md)
 * [Who are you](who_are_you.md)
 * [The Pendulum](the_pendulum.md)
