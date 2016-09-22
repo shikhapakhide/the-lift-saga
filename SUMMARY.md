@@ -3,7 +3,7 @@
 * [Foreword](README.md)
 * [Preface](1_preface.md)
 * [Those Eyes](2_those_eyes.md)
-* [Who are you](who_are_you.md)
+* [Who are you](3_who_are_you.md)
 * [The Pendulum](the_pendulum.md)
 * [Chasm](chasm.md)
 * [Runaway Girl](runaway_girl.md)
