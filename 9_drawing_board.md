@@ -1,6 +1,6 @@
 # Drawing Board
 
-Vikrant wanted to end this stalker story soon. It was getting on his nerves. There was more to this situation which he was not able to understand.He had to unearth the secrets, The plan was he will accompany Krittika till the bus stop, wait with her till her bus comes and then keep a watch on the stalkers activity.
+Vikrant wanted to end this stalker story soon. It was getting on his nerves. There was more to this situation which he was not able to understand. He had to unearth the secrets, The plan was he will accompany Krittika till the bus stop, wait with her till her bus comes and then keep a watch on the stalkers activity.
 
 The day preceding Kritikka's birthday looked beautiful. Krittika appeared to be calm and at peace with herself. Now with Vikrant around she was sure, he will handle this situation, and they will live happily ever after. Krittika left for office. They were not able to talk much as Vikrant's eyes were fixed on the stalker. Vikrant started feeling that though his gaze is on Krittika, he is looking far beyond. The bus came, and Krittika left for the office. Vikrant crossed the road and stood at a comfortable distance from the man in order not to make him vigilant. Krittika has left, why this guy is still staring. And where he is looking?
 
