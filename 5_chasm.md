@@ -14,7 +14,7 @@ Riddhima's mind was racing, and they have to make a plan to sort this out and ge
 
 This was quick. The girls were wondering if they did a good job or not. Now they were waiting for the morning to ascend. Riddhima was quite excited to don the detective hat and was trying to make the situation light. Krittika's parents did not have any clue of what these girls were up to. They were just happy that their daughter was ok now. You can not keep on prodding a 28-year-old every now and then and need to trust their mature angle.
 
-**Day One:** Riddhima and Krittika are both waiting for the bus to arrive. Krittika nudged Riddhima and secretly pointed out on who the stalker is.Riddhima gave her a sharp look, but his eyes were fixed on Krittika. The bus came, and they boarded it. There was no change in stalker's routine. He was present near their office tower when they were getting off the bus.
+**Day One:** Riddhima and Krittika are both waiting for the bus to arrive. Krittika nudged Riddhima and secretly pointed out on who the stalker is. Riddhima gave her a sharp look, but his eyes were fixed on Krittika. The bus came, and they boarded it. There was no change in stalker's routine. He was present near their office tower when they were getting off the bus.
 
 **Day Two:** While waiting for the bus, Riddhima pulled out her phone and clicked a couple of pictures. She had to do it discreetly in order not to attract attention from other passer-by and people who were standing near the stalker. She made sure that the stalker sees that she is clicking the picture.
 
