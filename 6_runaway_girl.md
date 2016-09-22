@@ -1,6 +1,6 @@
 # Runaway Girl
 
-Riddhima had to return to her place now. Her folks were getting into a panic mode as what was happening and what are girls planning.Parents have a fixed way of interpretation. If their girls are not speaking, they are not in their usual self or staying with their girlfriends for a reasonable time. The conclusion is: a guy is involved, and parents might go to an extent thinking that their girl is pregnant.
+Riddhima had to return to her place now. Her folks were getting into a panic mode as what was happening and what are girls planning. Parents have a fixed way of interpretation. If their girls are not speaking, they are not in their usual self or staying with their girlfriends for a reasonable time. The conclusion is: a guy is involved, and parents might go to an extent thinking that their girl is pregnant.
 
 Krittika was on her own now, though Riddhima assured her that they spend most of the time together in the office, and they will sort this out. Krittika had to get her wits together, as a jerk is not accepted in the corporate world. She was listening to inspirational music and had opted to give a blind eye to the stalker. She reached office today and was happy that she was not feeling nausea, no urges to go to the washroom every minute. The work day will be starting with the team meeting. It was almost time to rush to the conference room. Her team members asked Krittika on how she was feeling. She nodded with a smile and Riddhima pressed her hand in assurance.
 
