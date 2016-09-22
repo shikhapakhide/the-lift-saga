@@ -1,7 +1,7 @@
 # The Pendulum
 
-
-*"Should I speak to my family about this person "
+*
+"Should I speak to my family about this person "*
 
 *"Should I tell this to Riddhima and we solve it without involving my parents."*
 
@@ -12,8 +12,9 @@
 *"Should I tell Vikrant? But sitting in Bangalore what can he do?"*
 
 *"Should I tell all my guy friends? They will go and bash him up. But what if he comes back to take the revenge and ... "*
-*
-*Krittika screamed and said, "Shut up." She was sitting on the bed, sweating and staring into the darkness of her room.She has not shared this incident with anybody.Her parents, her best friend, her boyfriend, nobody is aware of her present state of mind.Nothing could pull Krittika down, and here she is contemplating if she should share about the stalker with her family members or friends.How could she be so scared? She is a confident, successful person who never shied away from speaking her mind.And look what a pair of eyes have done to her.She picked up the phone and dialled Riddhima's number.When it was about to ring, she disconnected.She decided that she will speak to her in the morning.A midnight call will scare her and plus if she doesn't answer the call, then Krittika will become more impatient.She kept her cell phone aside and tried to sleep.She did not want that morning should come.*
+
+
+Krittika screamed and said, "Shut up." She was sitting on the bed, sweating and staring into the darkness of her room.She has not shared this incident with anybody.Her parents, her best friend, her boyfriend, nobody is aware of her present state of mind.Nothing could pull Krittika down, and here she is contemplating if she should share about the stalker with her family members or friends.How could she be so scared? She is a confident, successful person who never shied away from speaking her mind.And look what a pair of eyes have done to her.She picked up the phone and dialled Riddhima's number.When it was about to ring, she disconnected.She decided that she will speak to her in the morning.A midnight call will scare her and plus if she doesn't answer the call, then Krittika will become more impatient.She kept her cell phone aside and tried to sleep.She did not want that morning should come.
 
 She did not want to go to the office.But for how long she will avoid her work.Her boss will throw her out of the office.Plus today it was the review.She forced herself to get ready and left the home.Her mother was pestering her to speak up as these days all Krittika used to do was stare, and not even a single word came out of her mouth.Her mother had even threatened that she would call Riddhima.
 
