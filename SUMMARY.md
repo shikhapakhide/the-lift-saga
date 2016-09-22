@@ -2,7 +2,7 @@
 
 * [Foreword](README.md)
 * [Preface](preface.md)
-* [Those Eyes](those_eyes.md)
+* [Those Eyes](1_those_eyes.md)
 * [Who are you](who_are_you.md)
 * [The Pendulum](the_pendulum.md)
 * [Chasm](chasm.md)
