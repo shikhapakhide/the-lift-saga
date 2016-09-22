@@ -32,7 +32,7 @@ They all marched to her room quietly so as not to wake up her parents. When all 
 
 "Riddhima who all are there? And what are you all doing at this time? And remove your hand, I can not see anything. It's hurting."
 
-Suddenly Krittika felt that someone is hugging her, and simultaneously Riddhima removed her hand. The musk fragrance was familiar, and her arms automatically wrapped that figure.She could hear the breathing sound and then heard Vikrant's voice," Happy Birthday Darling."
+Suddenly Krittika felt that someone is hugging her, and simultaneously Riddhima removed her hand. The musk fragrance was familiar, and her arms automatically wrapped that figure. She could hear the breathing sound and then heard Vikrant's voice," Happy Birthday Darling."
 
 She melted in the hug and hid her head. Her eyes refused to open, and it felt like ages that they have not met. Vikrant pushed her back gently when he felt the tears on his shirt.
 
