@@ -48,7 +48,7 @@ The man got miffed up and stood up in anger. The detectives signalled him to sit
 
 Hmmm, Vikrant knew that there was something else to this story.
 
-"If you are a respectable person and a CEO, why have you dressed up as a stalker.Does your wife works at Tower 26 ?"
+"If you are a respectable person and a CEO, why have you dressed up as a stalker. Does your wife works at Tower 26 ?"
 
 "I dress up like this so that my wife, children and my mother should not notice me. She does not allow me to meet my children so my only respite is to see them from a distance. I tried to meet her and sort things, but she did not entertain me. She is planning to file for divorce and be the custodian of my children."
 
