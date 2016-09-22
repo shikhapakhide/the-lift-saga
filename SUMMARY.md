@@ -6,7 +6,7 @@
 * [Who are you](3_who_are_you.md)
 * [The Pendulum](4_the_pendulum.md)
 * [Chasm](5_chasm.md)
-* [Runaway Girl](runaway_girl.md)
+* [Runaway Girl](6_runaway_girl.md)
 * [The Knight in Shining Armour](the_knight_in_shining_armour.md)
 * [The Retreat](the_retreat.md)
 * [Drawing Board](drawing_board.md)
