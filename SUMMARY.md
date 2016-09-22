@@ -1,6 +1,7 @@
 # Summary
 
 * [Foreword](README.md)
+* [Preface](chapter1.md)
 * [Those Eyes](those_eyes.md)
 * [Who are you](who_are_you.md)
 * [The Pendulum](the_pendulum.md)
@@ -11,6 +12,4 @@
 * [Drawing Board](drawing_board.md)
 * [It's War](its_war.md)
 * [Back to Life](back_to_life.md)
-* [Preface](chapter1.md)
-   * [Back to Life](back_to_life.md)
 
