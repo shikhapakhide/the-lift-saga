@@ -26,4 +26,8 @@ Krittika dived deep in the action the moment she landed at NeoDigital's office.T
 
 Time flies and when you are enjoying it, a month seems like a minute.Krittika's boss flew down for the review meeting and to ensure that NeoDigital's requirements were met.With the kind of efforts which Krittika had put, NeoDigital team was on cloud nine and for all their future assignments they only wanted her! Krittika's boss was very pleased, and the review meeting ended on a positive note.Krittika had planned to extend her stay in Mumbai to spend time with her cousins.Her parents had already reached.Her one week leave was sanctioned then and there.This break was good.But the stalker's image was buried deep in her subconscious.She had performed all the rituals and bid him a final goodbye, but he kept on rising like a phoenix.She was departing from Mumbai to Delhi tomorrow and was dreading the morning when she will catch the bus.She wanted this dream to last.
 
-She can not be the runaway girl throughout her life and had to return to her abode.Surprisingly during all this fiasco, she had hardly spoken to Vikrant.Was the chemistry and love between both of them dead?
+She can not be the runaway girl throughout her life and had to return to her abode.
+
+Surprisingly during all this fiasco, she had hardly spoken to Vikrant.
+
+***Was the chemistry and love between both of them dead?***
