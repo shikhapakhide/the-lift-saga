@@ -10,7 +10,7 @@
 * [The Retreat](the_retreat.md)
 * [Drawing Board](drawing_board.md)
 * [It's War](its_war.md)
+* [Back to Life](back_to_life.md)
 * [Preface](chapter1.md)
-   * [It's War](its_war.md)
    * [Back to Life](back_to_life.md)
 
