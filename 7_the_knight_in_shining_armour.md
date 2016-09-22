@@ -24,7 +24,7 @@ Krittika jumped out of the bed and tried to rush to the door silently. She switc
 
 "What are you doing moron? Make sure that the door is locked and since when did you don the hat of a stalker."
 
-Riddhima ignored her and firmed up her hand on her eyes to make sure that she can not see.She quietly whispered to the gang who were with her "Have you guys locked the door?" The reply came from a hushed male voice," Yes, it's closed."
+Riddhima ignored her and firmed up her hand on her eyes to make sure that she can not see. She quietly whispered to the gang who were with her "Have you guys locked the door?" The reply came from a hushed male voice," Yes, it's closed."
 
 "Let's move to her room."
 
