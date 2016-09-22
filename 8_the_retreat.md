@@ -10,7 +10,7 @@ Girls gorged on to the parathas and left for the office. They reached the bus st
 
 "Ok," And Krittika sat behind.
 
-"OMG,  you are such a bore.I was expecting you to put up a fight. Come in  the front and don't try to be the best girl."
+"OMG,  you are such a bore. I was expecting you to put up a fight. Come in  the front and don't try to be the best girl."
 
 Riddhima sat with a thud and Krittika had a mischievous smile on her face.
 
