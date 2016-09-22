@@ -4,7 +4,7 @@
 * [Preface](1_preface.md)
 * [Those Eyes](2_those_eyes.md)
 * [Who are you](3_who_are_you.md)
-* [The Pendulum](the_pendulum.md)
+* [The Pendulum](4_the_pendulum.md)
 * [Chasm](chasm.md)
 * [Runaway Girl](runaway_girl.md)
 * [The Knight in Shining Armour](the_knight_in_shining_armour.md)
