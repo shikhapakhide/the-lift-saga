@@ -31,6 +31,6 @@ The doctor turned to Riddhima and said," Make sure that she is eating properly.R
 
 Admin team arranged for a vehicle to drop Krittika at her residence.Krittika's boss cancelled the review meeting and allowed Riddhima to take a day off and be with Krittika.They both were alone in the cab, and Riddhima wanted to punch her hard.
 
-"You better vomit what is eating your head or else I will knock you off.I do not  want to keep guessing what is bothering you, so you better tell me the truth."
+"You better vomit what is eating your head or else I will knock you off.  I do not  want to keep guessing what is bothering you, so you better tell me the truth."
 
-***The pendulum stopped, and the vibrations went off.Riddhima had just one wish " To kill the stalker "***
+***The pendulum stopped, and the vibrations went off.  Riddhima had just one wish " To kill the stalker "***
