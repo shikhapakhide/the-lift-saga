@@ -1,3 +1,10 @@
-# The Lift Saga
 
-The up button was pressed umpteen number of times. She just wanted that damn lift to come fast and pressing the button again and again was not helping her either. The crowd was slowly building up around her which was making her more nervous.She was sweating profusely.Did she apply the deo before she left her home ? She was not able to recollect. At last the lift came.
+
+> ***Picking the threads from my first book, Define 36 which was a collection of shortest ( flash) stories, my second work of Fiction, The Lift Saga, is a novelette.I have a long way to go before I will pen a full-fledged novel.Nevertheless, writing is meditation for me, and I have promised myself that I will never stop it.
+
+***The Lift Saga represents that I have fulfilled the promise which I made with Define 36.******
+> *
+
+
+
+*
