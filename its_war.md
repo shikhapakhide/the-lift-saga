@@ -65,4 +65,4 @@ Ok, so this is the twist.This guy is buried under his miseries.Vikrant smiled an
 *People around us have their share of tragedies which we are not even aware of.It is better to be thankful for what we have and appreciate the small things.
 
 *
-***With a light head and heart, Vikrant called up Krittika.***
+**With a light head and heart, Vikrant called up Krittika.**
