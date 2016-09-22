@@ -10,6 +10,6 @@
    * [The Knight in Shining Armour](the_knight_in_shining_armour.md)
    * [The Retreat](the_retreat.md)
    * [Drawing Board](drawing_board.md)
-   * It's War
+   * [It's War](its_war.md)
    * Back to Life
 
