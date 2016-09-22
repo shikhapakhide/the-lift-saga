@@ -18,6 +18,6 @@ This was quick. The girls were wondering if they did a good job or not. Now they
 
 **Day Two:** While waiting for the bus, Riddhima pulled out her phone and clicked a couple of pictures. She had to do it discreetly in order not to attract attention from other passer-by and people who were standing near the stalker. She made sure that the stalker sees that she is clicking the picture.
 
-**End of Day two:** Riddhima and Krittika were sitting in their room and looking at each other blankly.Nothing happened. He did not do anything. No action from his side and now they were confused what to do next. Krittika hid her head in the pillow and was crying silently. Riddhima tried to console her and was praying that God should send some flash of an idea by which this situation is sorted out, and her friend is spared from this agony.
+**End of Day two:** Riddhima and Krittika were sitting in their room and looking at each other blankly. Nothing happened. He did not do anything. No action from his side and now they were confused what to do next. Krittika hid her head in the pillow and was crying silently. Riddhima tried to console her and was praying that God should send some flash of an idea by which this situation is sorted out, and her friend is spared from this agony.
 
 ***They both felt that they were getting swallowed by the dark chasm of fear.***
