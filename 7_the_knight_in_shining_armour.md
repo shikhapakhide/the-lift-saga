@@ -20,7 +20,7 @@ They reached home around 9.00 pm, and she was supposed to be at work tomorrow. S
 
 "Yes, I won't. So better move your bum and open the door."
 
-Krittika jumped out of the bed and tried to rush to the door silently. She switched the light on and peeped through the keyhole. Yes, It was Riddhima. Krittika opened the door quietly. Riddhima entered immediately and swirled Krittika. Riddhima put her hand on Krittika's eyes and instructed her not to look back and move quietly to her room.Krittika could sense that there were few more people around.
+Krittika jumped out of the bed and tried to rush to the door silently. She switched the light on and peeped through the keyhole. Yes, It was Riddhima. Krittika opened the door quietly. Riddhima entered immediately and swirled Krittika. Riddhima put her hand on Krittika's eyes and instructed her not to look back and move quietly to her room. Krittika could sense that there were few more people around.
 
 "What are you doing moron? Make sure that the door is locked and since when did you don the hat of a stalker."
 
