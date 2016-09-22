@@ -12,7 +12,7 @@ Stalker understood that fighting with these guys here will not be of any use, an
 Task one Completed!
 
 
-Vikrant was sitting in the front and instructed the driver to follow his instructions. The plan was to go and sit in a cafe and speak to him. Vikrant knew one cafe which did not see much traffic in the morning hours. They reached the cafe. Vikrant's friend was following the car. He was supposed to keep a watch on the driver while three of them drill the stalker.They made this kind of arrangement to ensure that the driver does not call up the "real policemen" or discuss this issue with somebody. The moment Vikrant and detective along with the stalker left for the cafe, Vikrant' s friend sat in the car.
+Vikrant was sitting in the front and instructed the driver to follow his instructions. The plan was to go and sit in a cafe and speak to him. Vikrant knew one cafe which did not see much traffic in the morning hours. They reached the cafe. Vikrant's friend was following the car. He was supposed to keep a watch on the driver while three of them drill the stalker. They made this kind of arrangement to ensure that the driver does not call up the "real policemen" or discuss this issue with somebody. The moment Vikrant and detective along with the stalker left for the cafe, Vikrant' s friend sat in the car.
 Vikrant ordered coffee for all.
 
 
