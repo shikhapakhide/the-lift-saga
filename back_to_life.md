@@ -1,7 +1,7 @@
 # Back to Life
 
-Vikrant narrated the entire incident to Krittika.She was relieved to know that the stalker did not exist.She silently prayed that the children get the love of both the parents.
-It was celebration time in the evening.Vikrant announced during the party that the proposal of marriage has been accepted by Krittikas parents and after their parents meet, the wedding date will be announced.Cork popped out from the bottle of champagne, and a toast was raised to the new VikrantKrittika era.
+Vikrant narrated the entire incident to Krittika. She was relieved to know that the stalker did not exist. She silently prayed that the children get the love of both the parents.
+It was celebration time in the evening. Vikrant announced during the party that the proposal of marriage has been accepted by Krittikas parents and after their parents meet, the wedding date will be announced. Cork popped out from the bottle of champagne, and a toast was raised to the new VikrantKrittika era.
 
 
 
