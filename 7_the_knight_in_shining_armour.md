@@ -1,6 +1,6 @@
 # The Knight in Shining Armour
 
-Rather than feeling fresh, Krittika was all tired when she reached home. Her parents were happy though with this one week vacation. When children grow up, they have their priorities and are involved in the mad race to achieve their goals.So when children spend time with their parents, parents treat that as the precious gift and especially with daughters as they will get married and move to a new house.
+Rather than feeling fresh, Krittika was all tired when she reached home. Her parents were happy though with this one week vacation. When children grow up, they have their priorities and are involved in the mad race to achieve their goals. So when children spend time with their parents, parents treat that as the precious gift and especially with daughters as they will get married and move to a new house.
 
 Krittika's mind was caught up in an unnecessary tussle: " Why one month has to come to an end? Can't I stay in Mumbai forever? Can somebody abduct the stalker and so on."
 
