@@ -1,7 +1,11 @@
 # The Knight in Shining Armour
 
-Rather than feeling fresh, Krittika was all tired when she reached home.Her parents were happy though with this one week vacation.When children grow up, they have their priorities and are involved in the mad race to achieve their goals.So when children spend time with their parents, parents treat that as the precious gift and especially with daughters as they will get married and move to a new house.Krittika's mind was caught up in an unnecessary tussle: " Why one month has to come to an end? Can't I stay in Mumbai forever? Can somebody abduct the stalker and so on."
+Rather than feeling fresh, Krittika was all tired when she reached home.Her parents were happy though with this one week vacation.When children grow up, they have their priorities and are involved in the mad race to achieve their goals.So when children spend time with their parents, parents treat that as the precious gift and especially with daughters as they will get married and move to a new house.
+
+Krittika's mind was caught up in an unnecessary tussle: " Why one month has to come to an end? Can't I stay in Mumbai forever? Can somebody abduct the stalker and so on."
+
 They reached home around 9.00 pm, and she was supposed to be at work tomorrow.She kissed her parent's goodnight and went to her room.She was not in a mood to change and dropped herself on the bed.Sleep goddess made sure that she goes into a slumber soon.
+
 "Who on earth is playing the rise up in the middle of the night?" Krittika was about to shout.She moved her body to look for her phone and was almost on the verge of dropping it as it was her phone which was spitting rise up song.She forgot to keep her phone on silent.With half open eyes, she looked at her phone, and it was not an alarm, but a phone call.The hello sounded like as if it was coming from a crow's throat.She thought she heard Riddhima.Why is she calling in the middle of the night? 
 
 "What do you want Riddhima ?"
@@ -52,4 +56,4 @@ He gave her a long warm kiss and softly said: "Got to go."
 
 Krittika bid goodbye to all.Riddhima stayed.She was roaming with these guys entire evening and had already told her parents that she would stay at Krittika's place.Best friends gave a tight hug to each other.
 
-Krittika's knight in shining armour has already planned the rescue operation.
+***Krittika's knight in shining armour has already planned the rescue operation.***
