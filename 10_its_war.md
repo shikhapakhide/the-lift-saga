@@ -62,7 +62,6 @@ Ok, so this is the twist. This guy is buried under his miseries. Vikrant smiled 
 
 "Now some truth from our side. We are not from the police. The reason we brought you here is that; my girlfriend boards the bus from the model colony bus stop and works at Tower 26. She saw you every day staring and following her to Tower 26, and we thought you are a stalker. Thank you for cooperating with us. I can not comment on your personal matter and will pray that things work out for you. I can only tell you one thing; wives can tolerate poverty, bad times everything but not infidelity. You have screwed up things and see how you can mend it up.You can go now. If you do not mind, can you drop us all at Tower 26? I need to give the good news to my girlfriend that you are not a stalker."
 
-*People around us have their share of tragedies which we are not even aware of. It is better to be thankful for what we have and appreciate the small things.
+*People around us have their share of tragedies which we are not even aware of. It is better to be thankful for what we have and appreciate the small things.*
 
-*
 **With a light head and heart, Vikrant called up Krittika.**
