@@ -1,6 +1,6 @@
 # Chasm
 
-Riddhima stayed with Krittika the other night. Krittika made an excuse to her parents that because of too much stress at work she has decided to take a day off from the office and rest at home.She did not tell her mother that she had fainted in the office else they would get more worried. They were happy to see her best friend and felt assured that their daughter is still sane and friends with her old pals. Krittika's mother prepared food for them, she kissed her daughter and left the two girls in the room.
+Riddhima stayed with Krittika the other night. Krittika made an excuse to her parents that because of too much stress at work she has decided to take a day off from the office and rest at home. She did not tell her mother that she had fainted in the office else they would get more worried. They were happy to see her best friend and felt assured that their daughter is still sane and friends with her old pals. Krittika's mother prepared food for them, she kissed her daughter and left the two girls in the room.
 
 Riddhima's mind was racing, and they have to make a plan to sort this out and get Krittika out of this rut. She did not start drafting the plan before yelling and giving Krittika a piece of her mind. A best friend has every right to be angry when her friend hides things.Krittika did not interrupt her and let her vent out all. She did apologise to Riddhima. After the anger, tears and hugs, they pulled a pen and paper to draft their master plan.
 
