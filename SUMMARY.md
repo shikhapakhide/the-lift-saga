@@ -1,6 +1,7 @@
 # Summary
 
 * [Foreword](README.md)
+* [Those Eyes](those_eyes.md)
 * [Preface](chapter1.md)
    * [Those Eyes](those_eyes.md)
    * [Who are you](who_are_you.md)
