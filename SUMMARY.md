@@ -7,7 +7,7 @@
 * [The Pendulum](4_the_pendulum.md)
 * [Chasm](5_chasm.md)
 * [Runaway Girl](6_runaway_girl.md)
-* [The Knight in Shining Armour](the_knight_in_shining_armour.md)
+* [The Knight in Shining Armour](7_the_knight_in_shining_armour.md)
 * [The Retreat](the_retreat.md)
 * [Drawing Board](drawing_board.md)
 * [It's War](its_war.md)
