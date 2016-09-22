@@ -8,7 +8,7 @@ Riddhima's mind was racing, and they have to make a plan to sort this out and ge
 
 "Riddhima will click pictures of the stalker."
 
-"First day: Riddhima will only accompany Krittika.No action will be performed. Second Day: His picture will be clicked."
+"First day: Riddhima will only accompany Krittika. No action will be performed. Second Day: His picture will be clicked."
 
 "Further steps to be decided by stalker's actions."
 
