@@ -9,7 +9,7 @@
 * [Runaway Girl](6_runaway_girl.md)
 * [The Knight in Shining Armour](7_the_knight_in_shining_armour.md)
 * [The Retreat](8_the_retreat.md)
-* [Drawing Board](drawing_board.md)
+* [Drawing Board](9_drawing_board.md)
 * [It's War](its_war.md)
 * [Back to Life](back_to_life.md)
 
